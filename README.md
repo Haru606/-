@@ -1,2 +1,0 @@
-hjasgjhvshvwo
-wpんgvpsぢvんvsっk
